@@ -18,7 +18,7 @@ In this article, we explore the key elements that make **Chhava Movie 2025** a m
 
 Unlike many previous films that focus on **Shivaji Maharaj’s** later years as a ruler, the **Chhava Movie 2025** takes a deeper dive into his **formative years**. This movie presents an intimate look at the young warrior’s upbringing, his close relationship with his mother **Jijabai**, and the events that shaped his character. By focusing on his childhood and the challenges he faced in his early life, the film offers a new perspective on how he became the revered leader we know today.
 
-This unique angle provides an emotional connection to Shivaji’s early struggles, making his story more relatable and inspiring for contemporary audiences, especially younger viewers who may not be familiar with his early life.
+This unique angle provides an emotional connection to Shivaji’s early struggles, making his story more relatable and inspiring for contemporary audiences, especially younger viewers who may not be familiar with his early life
 
 Chhava 𝘍𝘜𝘓𝘓𝘔𝘰𝘷𝘪𝘦
 
