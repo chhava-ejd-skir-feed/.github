@@ -1,6 +1,6 @@
 # 【𝐅𝚞𝖑𝖑𝐌𝐨𝚟Ꭵ𝐞】Chhava 2025【𝐌𝐨𝐯𝐢𝐞】𝐃𝐨𝐰𝚗𝐥𝐨𝐚𝐝 Fi𝐥𝐦yw𝐚𝐩 𝐦𝐩4mo𝐯𝐢ez 𝐅𝐢𝐥myzil𝐥𝐚 mut𝐭𝐲mov𝐢𝐞s 𝐯𝐞ga𝐦𝐨vi𝐞𝐬
 
-The **Chhava Movie 2025** is one of the most eagerly awaited films in Marathi cinema, offering a fresh and compelling take on the life of **Chhatrapati Shivaji Maharaj**, one of India’s most iconic historical figures. Set to be released in 2025, the movie is poised to captivate audiences with its powerful storytelling, historical accuracy, and stunning visuals, shedding light on the early life of the Maratha king.
+The **Chhava Movie 2025** is one of the most eagerly awaited films in Marathi cinema, offering a fresh and compelling take on the life of **Chhatrapati Shivaji Maharaj**, one of India’s most iconic historical figures. Set to be released in 2025, the movie is poised to captivate audiences with its powerful storytelling, historical accuracy, and stunning visuals, shedding light on the early life of the Maratha king
 
 <h3><a href="https://movieslink.short.gy/Chhaava">➤ ►🌍📺📱👉 Chhava 𝙈𝙤𝙫𝙞𝙚 𝘿𝙤𝙬𝙣𝙡𝙖𝙤𝙙</a></h3>
 
